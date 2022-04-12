@@ -1,0 +1,3 @@
+- 👋 Olá, eu me chamo Raí!
+- 👀 Gosto muito da área de informática.
+- 🌱 Aprendo muito com [BABOO](https://www.youtube.com/channel/UC5KejskaVsfsIyXqbgqPRvg).
