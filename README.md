@@ -1,7 +1,11 @@
-Olá, meu Nome é Raí! Sou natural de Chopinzinho - PR. 🇻🇦
-### Sou interessado em: ###
+Olá, meu nome é Raí Piaia 🙋‍♂️
 
--Doutrina cristã ✝️
--Metafísica 🇻🇦
--Espiritualidade 📚
+Sou natural de Chopinzinho, PR 🇧🇷
 
+Sou interessado em 💚
+
+- Catolicismo ⛪
+
+- Espiritualidade 🇻🇦
+
+- Livros 📚
